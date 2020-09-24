@@ -4,20 +4,20 @@ aart2heart@gmail.com
 
 Art2Heart Members
 
-Brenda Lucy Kariuki
-Getrude Jepchumba Kipkemoi
-Dereck Nyangau Gekumba
-Cynthia Sakinah Musila
-Kelvin Munywoki Mutua
-Sidney Kipkemoi Birir
-Sophy Athiambo Otieno
-Oluwanimilo Temitope Odutola
-Gladys Mumbi Musau
-Faith Nyamokami Chamoro
-Mercy Nyanduko Sigistu
-Muthee Mariah Mwihaki (Ritah)
-Maryam Wamboi Mwangi
-Salome Moraa Kibagendi
-Okoth Felix Otieno
-John Carlton Kisero
-Faith Mueni Mwongela
+Brenda Lucy Kariuki<br />
+Getrude Jepchumba Kipkemoi<br />
+Dereck Nyangau Gekumba<br />
+Cynthia Sakinah Musila<br />
+Kelvin Munywoki Mutua<br />
+Sidney Kipkemoi Birir<br />
+Sophy Athiambo Otieno<br />
+Oluwanimilo Temitope Odutola<br />
+Gladys Mumbi Musau<br />
+Faith Nyamokami Chamoro<br />
+Mercy Nyanduko Sigistu<br />
+Muthee Mariah Mwihaki (Ritah)<br />
+Maryam Wamboi Mwangi<br />
+Salome Moraa Kibagendi<br />
+Okoth Felix Otieno<br />
+John Carlton Kisero<br />
+Faith Mueni Mwongela<br />
