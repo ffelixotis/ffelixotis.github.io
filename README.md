@@ -1,5 +1,5 @@
 # ffelixotis.github.io
-aart2heart@gmail.com
+<a href="aart2heart@gmail.com">aart2heart@gmail.com<a/>
 
 
 Art2Heart Members
@@ -10,7 +10,7 @@ Art2Heart Members
 4. Cynthia Sakinah Musila<br />
 5. Kelvin Munywoki Mutua<br />
 6. Sidney Kipkemoi Birir<br />
-7. Sophy Athiambo Otieno<br />
+7. Sophy Adhiambo Otieno<br />
 8. Oluwanimilo Temitope Odutola<br />
 9. Gladys Mumbi Musau<br />
 10. Faith Nyamokami Chamoro<br />
